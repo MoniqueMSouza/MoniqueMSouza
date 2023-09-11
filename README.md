@@ -20,7 +20,7 @@
 
 ## Contato
 - 📧 Email: moniquemoreira.mkt@gmail.com
-- 🌐 LinkedIn: [Monique Souza LinkedIn](https://www.linkedin.com/in/moniquesouza)
+- 🌐 LinkedIn: [Monique Souza LinkedIn](https://www.linkedin.com/in/monique-moreira-souza/)
 
 
 
